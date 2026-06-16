@@ -1,1 +1,2 @@
-# laidonlaikep <img width="709" height="945" alt="17815876384345394108040486593092" src="https://github.com/user-attachments/assets/efcea65b-585e-4b37-a2ec-28ce8237f763" />
+# laidonlaikep <img width="373" height="501" alt="Screenshot_20260616_123103_Chrome" src="https://github.com/user-attachments/assets/e5cda524-6ce8-46b8-ada0-af47192a6e32" />
+
